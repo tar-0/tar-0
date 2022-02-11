@@ -2,7 +2,7 @@
 - 👀 I’m interested in anime, gaming, music, creative writing
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me @eileen.__.tian on Instagram, 田艾琳#0873 on Discord
 
 <!---
 tar-0/tar-0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
